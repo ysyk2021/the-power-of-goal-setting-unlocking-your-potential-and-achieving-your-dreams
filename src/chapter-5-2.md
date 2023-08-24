@@ -1,5 +1,3 @@
-Action Planning and Accountability
-====================================================================================
 
 Goal setting is the first step towards achieving success, but effective goal setting requires action planning and accountability. In this chapter, we will explore techniques for creating action plans and establishing accountability to achieve our goals.
 

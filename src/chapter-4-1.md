@@ -1,4 +1,3 @@
-# Short-Term and Long-Term Goals
 
 In this chapter, we will explore the importance of setting both short-term and long-term goals. Understanding the difference and relationship between these two types of goals is crucial for effective goal planning and achievement.
 

@@ -1,5 +1,3 @@
-Chapter 11: Conclusion
-======================
 
 Recap of Key Points
 -------------------

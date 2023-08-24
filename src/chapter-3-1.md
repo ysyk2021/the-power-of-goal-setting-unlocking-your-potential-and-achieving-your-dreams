@@ -1,5 +1,3 @@
-Understanding the Psychology of Goal Setting
-====================================================================================
 
 Goal setting is a complex process that involves various psychological factors. In order to set and achieve goals effectively, it is important to understand the psychology behind it.
 

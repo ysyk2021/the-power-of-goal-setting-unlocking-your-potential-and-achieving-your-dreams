@@ -1,5 +1,3 @@
-Chapter 10: Ethical Considerations in Goal Setting
-==================================================
 
 Goal setting is a powerful tool for personal and professional development, but it is essential to consider ethical implications when setting goals. In this chapter, we will explore ethical considerations in goal setting and discuss how individuals can balance personal and business interests while addressing potential risks and consequences.
 

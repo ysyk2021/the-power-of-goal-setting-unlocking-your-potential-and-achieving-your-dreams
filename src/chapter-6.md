@@ -1,5 +1,3 @@
-Chapter 6: Maximizing Your Potential through Goal Achievement
-=============================================================
 
 Setting and achieving goals is crucial to unlocking personal and professional potential. This chapter will explore ways individuals can maximize their potential through goal achievement, including creating a sense of purpose and vision, building resilience and persistence, and leveraging strengths and skills.
 

@@ -1,5 +1,3 @@
-Qualitative and Quantitative Methods for Evaluation
-=================================================================================================
 
 Achieving goals is an important part of personal and professional development. However, it is equally important to evaluate progress towards these goals to measure success and identify areas for improvement. In this chapter, we will explore the importance of measuring success in goal setting and discuss qualitative and quantitative methods for evaluating progress.
 

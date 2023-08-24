@@ -1,5 +1,3 @@
-Key Performance Indicators (KPIs) for Measuring Success
-=====================================================================================================
 
 Goal setting is a powerful tool for personal and professional development, but measuring success can be challenging. In this chapter, we will explore the importance of measuring success in goal setting and how to use key performance indicators (KPIs) to measure progress.
 

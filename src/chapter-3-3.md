@@ -1,5 +1,3 @@
-Importance of Positive Emotions and Mindset
-===================================================================================
 
 Goal setting goes beyond simply deciding what one wants to achieve. In order to set and achieve goals effectively, it is important to understand the science behind it. Positive emotions and mindset play a crucial role in goal setting and achievement.
 

@@ -1,5 +1,3 @@
-Chapter 3: The Science of Goal Setting
-======================================
 
 Goal setting is a critical part of achieving success in any area of life. To set and achieve goals effectively, it's important to understand the science behind it. This chapter will cover the following three subtopics:
 

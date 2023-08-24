@@ -1,5 +1,3 @@
-Recap of Key Points
-===========================================
 
 Goal setting is a powerful tool for unlocking an individual's potential and achieving their dreams. In this book, we have explored various techniques and strategies for effective goal setting. Here is a recap of the key points discussed in this book:
 

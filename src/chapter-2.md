@@ -1,5 +1,3 @@
-Chapter 2: Understanding Goal Setting
-=====================================
 
 Goal setting is the process of defining and pursuing specific objectives or aims. It plays a crucial role in achieving personal and professional success. This chapter will cover the following three subtopics:
 

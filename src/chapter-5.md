@@ -1,5 +1,3 @@
-Chapter 5: Techniques for Effective Goal Setting
-================================================
 
 Setting goals is essential to achieving personal and professional growth. In this chapter, we will explore several techniques for effective goal setting to help individuals unlock their potential and achieve their dreams.
 

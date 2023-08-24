@@ -1,5 +1,3 @@
-Building Resilience and Persistence
-==================================================================================================
 
 Achieving goals can be challenging and require significant effort and dedication. In this chapter, we will explore strategies for building resilience and persistence to maximize your potential through goal achievement.
 

@@ -1,5 +1,3 @@
-Definition of Goal Setting
-=================================================================
 
 Goal setting is a well-known concept in personal and professional development, but what exactly does it mean? In this chapter, we will define goal setting and explore the importance of setting goals for personal and professional growth.
 

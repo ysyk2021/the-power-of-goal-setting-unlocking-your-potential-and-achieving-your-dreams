@@ -1,5 +1,3 @@
-SMART Goals and Beyond
-======================================================================================
 
 Setting goals is crucial for personal and professional growth. In this chapter, we will explore different types of goals for personal and professional growth.
 

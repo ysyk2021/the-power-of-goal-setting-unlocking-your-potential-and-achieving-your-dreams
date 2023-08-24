@@ -1,5 +1,3 @@
-Creating a Sense of Purpose and Vision
-=====================================================================================================
 
 Creating a sense of purpose and vision is critical to maximizing potential through goal achievement. By defining personal values, passions, and aspirations, individuals can set goals that align with their unique sense of purpose and vision. This provides clarity and focus and increases the motivation and commitment needed to achieve goals.
 

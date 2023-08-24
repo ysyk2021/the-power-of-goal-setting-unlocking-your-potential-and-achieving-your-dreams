@@ -1,5 +1,3 @@
-Overcoming Procrastination and Obstacles
-==========================================================================================
 
 Effective goal setting is essential for achieving success, but procrastination and obstacles can hinder progress. In this chapter, we will explore techniques for overcoming procrastination and obstacles to achieve our goals.
 

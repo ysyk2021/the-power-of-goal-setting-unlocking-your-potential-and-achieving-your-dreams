@@ -1,5 +1,3 @@
-Common Myths about Goal Setting
-======================================================================
 
 Goal setting is a critical component of achieving personal and professional success. However, there are several common myths about goal setting that can hinder individuals from achieving their desired outcomes. In this chapter, we will explore some of these misconceptions.
 

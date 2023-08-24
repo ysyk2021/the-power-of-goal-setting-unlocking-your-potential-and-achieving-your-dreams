@@ -1,5 +1,3 @@
-Chapter 7: Measuring Success in Goal Setting
-============================================
 
 Measuring success in goal setting is critical to evaluate progress and determine if goals have been achieved. In this chapter, we will explore techniques for measuring success in goal setting.
 

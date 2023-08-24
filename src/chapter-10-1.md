@@ -1,5 +1,3 @@
-Understanding Ethical Guidelines and Standards
-==================================================================================================
 
 Effective goal setting is an important aspect of personal and professional success, but it is essential to consider ethical principles when setting goals to ensure that they align with acceptable and ethical standards. This chapter will explore ethical considerations in goal setting and provide a framework for understanding ethical guidelines and standards.
 

@@ -1,5 +1,3 @@
-Chapter 9: Integrating Goal Setting with Personal Growth
-========================================================
 
 Integrating goal setting with personal growth can lead to achieving greater success and fulfillment. In this chapter, we will explore how to integrate goal setting with personal growth.
 

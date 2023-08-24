@@ -1,5 +1,3 @@
-Chapter 4: Types of Goals for Personal and Professional Growth
-==============================================================
 
 Goals are essential for personal and professional growth. They provide direction, focus, and motivation towards achieving desired outcomes. In this chapter, we will explore different types of goals and how they can be used to unlock an individual's potential and achieve their dreams.
 
