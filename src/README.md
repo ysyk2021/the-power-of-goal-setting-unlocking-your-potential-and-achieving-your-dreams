@@ -8,3 +8,7 @@ Throughout the book, we will draw on real-world examples of successful individua
 Whether you're just starting out on your goal-setting journey or seeking to take your skills to the next level, this book will provide you with the knowledge and inspiration you need to unleash your full potential. By embracing the power of goal setting and implementing these strategies into your life, you can achieve your dreams and create a more fulfilling future.
 
 MingHai Zheng is the founder of zhengpublishing.com and lives in Wuhan, China. His main publishing areas are business, management, self-help, computers and other emerging foreword fields.
+
+Please Buy Me a Coffee to support us if you think this book is valuable to you. click this link:
+
+https://www.buymeacoffee.com/minghaizheng
