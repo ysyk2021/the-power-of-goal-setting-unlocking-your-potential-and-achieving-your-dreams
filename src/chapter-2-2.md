@@ -1,5 +1,4 @@
-Chapter: Benefits of Effective Goal Setting
-===========================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the numerous benefits that effective goal setting can bring to your life. By understanding these advantages, you can harness the power of goal setting to unlock your potential and achieve your dreams.
 

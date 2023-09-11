@@ -1,5 +1,4 @@
-Chapter: Action Planning and Accountability
-===========================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will delve into the importance of action planning and accountability in the process of unlocking your potential and achieving your dreams through goal setting. By understanding how to create effective action plans and establish accountability measures, you can ensure that you stay on track and take consistent steps towards your goals.
 

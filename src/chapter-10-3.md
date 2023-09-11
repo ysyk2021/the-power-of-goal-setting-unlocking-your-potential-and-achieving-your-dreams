@@ -1,5 +1,4 @@
-Chapter: Addressing Potential Risks and Consequences of Goal Setting
-====================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the potential risks and consequences associated with goal setting. While setting goals can be a powerful tool for unlocking your potential and achieving your dreams, it is essential to be aware of the potential challenges and take necessary precautions to mitigate any negative impacts.
 

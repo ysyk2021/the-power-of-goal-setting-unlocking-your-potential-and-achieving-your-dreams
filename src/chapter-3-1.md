@@ -1,5 +1,4 @@
-Chapter: Understanding the Psychology of Goal Setting
-=====================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will delve into the psychology behind goal setting and explore the fundamental principles that influence our ability to unlock our potential and achieve our dreams. By understanding the psychological aspects of goal setting, you can optimize your approach and increase your chances of success.
 

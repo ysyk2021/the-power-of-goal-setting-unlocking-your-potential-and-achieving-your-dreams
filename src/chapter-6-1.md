@@ -1,5 +1,4 @@
-Chapter: Creating a Sense of Purpose and Vision
-===============================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the importance of creating a sense of purpose and vision in unlocking your potential and achieving your dreams. Having a clear understanding of your purpose and a compelling vision for your future provides a solid foundation for setting meaningful goals and driving your actions. Let's delve into how to develop a sense of purpose and create a powerful vision.
 

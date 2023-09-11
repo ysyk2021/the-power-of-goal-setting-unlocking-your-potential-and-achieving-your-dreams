@@ -1,5 +1,4 @@
-Chapter: Overcoming Procrastination and Obstacles
-=================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore strategies and techniques to overcome procrastination and navigate through obstacles that may hinder your progress towards achieving your goals. By understanding these challenges and implementing effective approaches, you can stay motivated, focused, and resilient in your pursuit of unlocking your potential and achieving your dreams.
 

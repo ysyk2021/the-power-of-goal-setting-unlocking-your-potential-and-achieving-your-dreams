@@ -1,5 +1,4 @@
-Chapter: Definition of Goal Setting
-===================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will delve into the definition and significance of goal setting in unlocking your potential and achieving your dreams. Understanding what goal setting entails and its role in personal and professional development is crucial for harnessing its power. Let's explore the definition of goal setting and its key components.
 

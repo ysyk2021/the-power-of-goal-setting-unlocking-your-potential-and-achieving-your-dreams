@@ -1,5 +1,4 @@
-Chapter: Qualitative and Quantitative Methods for Evaluation
-============================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the importance of using both qualitative and quantitative methods for evaluating your progress in unlocking your potential and achieving your dreams through goal setting. By incorporating these two approaches, you can gain a comprehensive understanding of your performance, make informed decisions, and refine your strategies effectively.
 

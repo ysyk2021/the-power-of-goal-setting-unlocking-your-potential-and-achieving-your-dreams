@@ -1,5 +1,4 @@
-Chapter: Developing Resilience and Coping Skills
-================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the importance of developing resilience and coping skills when setting goals. Life is filled with challenges and setbacks, but by cultivating resilience and learning effective coping strategies, you can navigate obstacles and stay focused on achieving your dreams. Building resilience not only strengthens your ability to bounce back from adversity but also enhances your overall well-being and success.
 

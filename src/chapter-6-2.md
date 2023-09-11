@@ -1,5 +1,4 @@
-Chapter: Building Resilience and Persistence
-============================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the importance of building resilience and persistence in the pursuit of your goals. Resilience and persistence are key traits that empower individuals to overcome challenges, setbacks, and obstacles on their journey towards achieving their dreams. By developing these qualities, you can maintain focus, stay motivated, and navigate through adversity effectively.
 

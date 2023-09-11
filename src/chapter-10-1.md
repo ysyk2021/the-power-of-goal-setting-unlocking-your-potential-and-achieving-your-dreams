@@ -1,5 +1,4 @@
-Chapter: Understanding Ethical Guidelines and Standards
-=======================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the importance of understanding ethical guidelines and standards when setting and pursuing goals. Ethics serve as a compass for our actions, ensuring that we uphold principles of integrity, fairness, and responsibility throughout our goal-setting journey. By embracing ethical practices, you can maximize your potential while maintaining a sense of moral responsibility and contributing positively to society.
 

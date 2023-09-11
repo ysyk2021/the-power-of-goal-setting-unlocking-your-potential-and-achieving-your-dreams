@@ -1,5 +1,4 @@
-Chapter: Importance of Positive Emotions and Mindset
-====================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the crucial role of positive emotions and mindset in unlocking your potential and achieving your dreams through goal setting. By understanding the significance of cultivating positivity, you can enhance motivation, resilience, and overall well-being on your journey towards success.
 

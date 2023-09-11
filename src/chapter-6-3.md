@@ -1,5 +1,4 @@
-Chapter: Leveraging Strengths and Skills
-========================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the importance of leveraging your strengths and skills in the pursuit of your goals. Understanding and utilizing your unique abilities can significantly enhance your chances of unlocking your potential and achieving your dreams. By harnessing your strengths and developing relevant skills, you can maximize your effectiveness and create a pathway for success.
 

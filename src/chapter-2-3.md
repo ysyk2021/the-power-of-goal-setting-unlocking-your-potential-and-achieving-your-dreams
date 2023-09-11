@@ -1,5 +1,4 @@
-Chapter: Common Myths About Goal Setting
-========================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will address and debunk common myths surrounding goal setting. These misconceptions can hinder progress, create unrealistic expectations, and limit the potential for achieving your dreams. By understanding these myths, you can overcome obstacles and approach goal setting with clarity and effectiveness.
 

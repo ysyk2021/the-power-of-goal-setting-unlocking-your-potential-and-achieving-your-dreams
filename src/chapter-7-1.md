@@ -1,5 +1,4 @@
-Chapter: Key Performance Indicators (KPIs) for Measuring Success
-================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the concept of Key Performance Indicators (KPIs) and their role in measuring success in goal setting. KPIs serve as quantifiable metrics that help track progress and evaluate the effectiveness of your efforts. By understanding and implementing relevant KPIs, you can gauge your performance and make informed adjustments to achieve your goals more effectively.
 
